@@ -1,3 +1,3 @@
 ## Welcome to Better Baby Buggies
 
-Our Better Baby Buggies is still in the works!
+Our Better Baby Buggy is still in the works!
